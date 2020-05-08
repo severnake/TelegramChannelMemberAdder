@@ -23,7 +23,7 @@ https://youtu.be/65WIov9yS7k
 
 ➖➖➖➖➖➖
 ***
-Contact me to purchase the special source for Telegram Member Adder for Telegram Channel =>
+Contact me to purchase the special source for Send message to Channel and Group members Tool =>
 
 🌐 Contact me via Email : erfan4lx@gmail.com 🌐
 🌐 Contact me via Telegram : https://telegram.me/erfan4lx 🌐
