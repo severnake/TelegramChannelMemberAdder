@@ -16,20 +16,11 @@ Show in YouTube : https://youtu.be/65WIov9yS7k
 
 ➖➖➖➖➖➖
 
-💢 https://linktr.ee/erfan4lx 💢
+🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-➖➖➖➖➖➖
-***
-Contact me to purchase the special source for Send message to Channel and Group members Tool =>
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam
 
-🌐 Contact me via Email : erfan4lx@gmail.com 🌐
-🌐 Contact me via Telegram : https://telegram.me/erfan4lx 🌐
-***
-
-
-🆔 Our Website : https://M4nifest0.com
-
-🆔 Our Telegram Channel : https://t.me/M4nifest0
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
 <p align="center">
   Follow Me On
