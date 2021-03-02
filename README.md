@@ -1,20 +1,11 @@
 # Telegram Channel Member Adder
 ***
- Just open the file with Python3 and Use!
+Get to know the best Tool to Add the Member in the Telegram Channel
 ***
 
-Show in YouTube : https://youtu.be/65WIov9yS7k
+Show full video on YouTube : https://youtu.be/65WIov9yS7k
 
-
-👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
-
-🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
-
-➖➖➖➖➖➖
-
-🆔@erfan4lx
-
-➖➖➖➖➖➖
+Show demo video on Instagram : https://www.instagram.com/p/CL7bxYdgaJA
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
@@ -30,3 +21,4 @@ Show in YouTube : https://youtu.be/65WIov9yS7k
     <img src="https://www.iconsdb.com/icons/preview/black/youtube-4-xxl.png" width="40" height="40">
   </a>
 </p>
+
