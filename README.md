@@ -5,7 +5,7 @@ Get to know the best Tool to Add the Member in the Telegram Channel
 
 Show full video on YouTube : https://youtu.be/65WIov9yS7k
 
-Show demo video on Instagram : https://www.instagram.com/p/CL7bxYdgaJA
+Show demo video on Instagram : https://www.instagram.com/p/CL7kQSdguKc
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
